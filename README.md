@@ -1,6 +1,6 @@
 # Had CODJO 👋
 
-Ingénieur en Statisticien Économiste
+Ingénieur en Statisticien | Spécialiste Data & ESG 
 
 ## 👨‍💻 About Me
 
